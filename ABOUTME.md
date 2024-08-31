@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NellieXie
+- 👀 I’m interested in Immersive Experience Creation, Technology-Empowered Storytelling.
+- 🌱 I’m currently a uni student in China, in search of a creative career. (I don't really know what I do, but I will keep redefining it.)
+- 💞️ I’m creating stories in the form of game design. interactive installation and ar experience.
+- 📫 How to reach me: thisisnxie@outlook.com
+- 😄 My channel: https://www.youtube.com/@nellyreeelley
+- ⚡ Portfolio: https://nellyalley.cargo.site
