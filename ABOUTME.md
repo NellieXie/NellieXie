@@ -4,4 +4,4 @@
 - 💞️ I’m creating stories in the form of game design. interactive installation and ar experience.
 - 📫 How to reach me: thisisnxie@outlook.com
 - 😄 My channel: https://www.youtube.com/@nellyreeelley
-- ⚡ Portfolio: https://nellyalley.cargo.site
+- ⚡ Portfolio: https://nelliesalley.cargo.site
